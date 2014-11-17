@@ -21,3 +21,4 @@ Thus, the mere act of answering this question presents a paradox of the very typ
 2 mins · Like
 
 Jestin LeBaron We find ourselves only in a state of inflexibility, there are many, in fact a growing number of people, with flexible personalities, so don't lose heart.
+
